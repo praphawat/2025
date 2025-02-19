@@ -1,2 +1,1 @@
-# 2025
-My progress of the year 2025.
+# My 2025
